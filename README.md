@@ -448,8 +448,11 @@
     
 **`下载链接：`**
 
-链接：https://pan.xunlei.com/s/VMzuZMn_adcsVsHKVk7gw6HhA1
+（原作者）链接：https://pan.xunlei.com/s/VMzuZMn_adcsVsHKVk7gw6HhA1
 提取码：dhck
+
+(H4K6上传的百度云) 链接：https://pan.baidu.com/s/19FaL7zhWx0rA1vDLILEyYQ?pwd=f69r 
+提取码：f69r 
 
 **`截图预览：`**
 
